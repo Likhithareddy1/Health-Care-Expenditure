@@ -50,9 +50,7 @@ Contributions are welcome! Feel free to submit issues, improvements, or new feat
 
 ## 📬 **Contact**  
 For any queries or collaborations, connect with me:  
-- **Email**: [your-email@example.com](mailto:your-email@example.com)  
-- **LinkedIn**: [your-linkedin-profile](https://linkedin.com/in/yourprofile)  
+- **Email**: [likhithareddykesara1@gmail.com](mailto:likhithareddykesara1@gmail.com)  
+- **LinkedIn**: [Likhitha Reddy Kesara]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/likhitha-reddy-kesara-709a75189/)  
 
 ---
-
-Let me know if you want modifications! 🚀
